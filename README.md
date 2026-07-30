@@ -1,1 +1,0 @@
-# Dhaka-Garments-and-washing
